@@ -1,1 +1,1 @@
-![Снимок1](https://user-images.githubusercontent.com/110992656/225539863-d962b7bb-b13c-424d-ab96-810c8ad9e701.JPG)
+![bug](https://user-images.githubusercontent.com/110992656/225540475-cc0f57e4-6744-4e28-8e39-8ac6a17e85f6.JPG)
